@@ -4,3 +4,6 @@ http://share.weipai.cn/video/5714859c62e2b0e4b1c42b42?type=
 http://share.weipai.cn/video/570d05fdc5b4b0e471f645f4?type=
 http://share.weipai.cn/video/5714c0fbc5b4b0e45df845f4?type=
 http://share.weipai.cn/video/57122fb762e2b0e4f9c32b42?type=
+http://share.weipai.cn/video/5719bd2fff2cb0e4f2f0b1b3?type=
+http://share.weipai.cn/video/56a4e5416f6eb0e4a01db3c7?type=
+http://share.weipai.cn/video/57191b7562e2b0e41ec62b42?type=
